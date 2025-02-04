@@ -5,13 +5,13 @@ Forma na dort 20 cm, Elektrický šlehač
 Korpus: 
 - 1 lžička vanilkového extraktu Dr. Oetker 
 - 50 g přírodního kakaa Dr. Oetker 
-1 kelímek kysané smetany 
-30 g rostlinného oleje 
-230 g cukru krupice 
-200 g hladké mouky 
-1 lžička jedlé sody 
-80 g másla 
-2 vejce 
+- 1 kelímek kysané smetany 
+- 30 g rostlinného oleje 
+- 230 g cukru krupice 
+- 200 g hladké mouky 
+- 1 lžička jedlé sody 
+- 80 g másla 
+- 2 vejce 
 
 Krém: 
 
