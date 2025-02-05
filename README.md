@@ -54,8 +54,7 @@
 - Jahodový koláč
 - Ovocné knedlíky
 - Palačinky s marmeládou a čokoládovou polevou
-- Palačinky
-- Tvarohové palačinky bez mouky
+- Palačinky z tvarohového těsta
 - Švestkový koláč
 
 # Nápoje
