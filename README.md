@@ -25,10 +25,10 @@
 - Segedínský guláš
 - Smažené nudle
 - Smažený řízek s vídeňským salátem
-- Spagety Bolognese
-- Spagety Carbonara
 - Studený těstovinový salát
 - Svíčková omáčka
+- Špagety Bolognese
+- Špagety Carbonara
 - Tortellini con Polo
 - Vepřová krkovice na grilu
 - Vepřová krkovice špikovaná česnekem
