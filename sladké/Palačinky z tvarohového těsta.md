@@ -1,4 +1,4 @@
-# Tvarohové palačinky bez mouky
+# Palačinky z tvarohového těsta
 
 ### Suroviny
 
