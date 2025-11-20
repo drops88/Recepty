@@ -5,9 +5,10 @@
 ### Suroviny
 
 - Listové těsto (nejlépe chlazené, lze použít i mražené)
-- Jablka (asi 1,5 kg)
-- skořicový cukr (2 sáčky)
-- moučkový cukr
+- Jablka (10-12 ks)
+- skořice
+- sladidlo nebo moučkový cukr
+- vanilkový cukr
 - rozinky
 - ořechy
 - strouhanka
@@ -15,12 +16,18 @@
 
 ### Postup
 
-1. Zapnu troubu a nechám ji ohřát na teplotu 200 stupňů. Nachystám si plech a na něj list pečicího papíru.
-2. Jablka nastrouhám nahrubo i se slupkou. Ořechy a rozinky nakrájím na drobné kousky.
-3. V misce smíchám dva sáčky skořicového cukru, 2-4 lžíce moučkového cukru, rozinky a ořechy. Hotovou směs přimíchám do nastrouhaných jablek.
-4. Vejce vyklopím do hrnku a rozšlehám. Listové těsto rozválím na placku ve tvaru obdélníka.
-5. Ve středu placky vytvořím chodníček ze strouhanky, a na něj pak kladu náplň z jablek.
-6. Přeložím jeden okraj, potřu ho vejcem. Přeložím druhý okraj a opět potřu vejcem.
-7. Ostrým nožem provedu kolmé řezy, které usnadní krájení hotového výrobku.
-8. Peču dva kusy najednou, zhruba 20 minut. Po dvaceti minutách vyndám z trouby a znovu potřu vejcem.
-9. Peču další 3-5 minut podle stavu a barvy. Po vytažení z trouby pocukruji práškovým cukrem.
+1. Zapnu troubu a nechám ji ohřát na teplotu 200 stupňů.
+2. Nachystám si plech a na něj list pečicího papíru.
+3. Jablka nastrouhám nahrubo i se slupkou.
+4. Ořechy a rozinky nakrájím na drobné kousky.
+5. V misce smíchám 1 lžičku sladidla nebo 3 lžičky moučkového cukru, 1 lžičku skořice, rozinky a ořechy.
+6. Hotovou směs přimíchám do nastrouhaných jablek.
+7. Vejce vyklopím do hrnku a rozšlehám.
+8. Listové těsto rozválím na placku ve tvaru obdélníka.
+9. Ve středu placky vytvořím chodníček ze strouhanky, a na něj pak kladu náplň z jablek.
+10. Přeložím jeden okraj, potřu ho vejcem.
+11. Přeložím druhý okraj a opět potřu vejcem.
+12. Ostrým nožem provedu kolmé řezy, které usnadní krájení hotového výrobku.
+13. Peču dva kusy najednou, zhruba 16 minut.
+14. Pak otočím plech o 180 stupňů a peču další 2-4 minuty podle barvy.
+15. Po vytažení z trouby pocukruji vanilkovým cukrem.
